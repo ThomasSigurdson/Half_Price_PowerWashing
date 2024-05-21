@@ -12,3 +12,5 @@ Gucci got a blosom stuck to her nose. Silly dog.
 ### Gucci & I are living out of our truck.
 
 ## For any inquiries, contact us at: thomas.sigurdson88@gmail.com
+
+!["April 2022. Gucci & I Captured by Google Maps"](Gucci_&_ I_Captured_by_Google Maps_695x377.png)
