@@ -1,3 +1,5 @@
+<link rel="stylesheet" href="styles.css">
+
 # ½ Price Power Washing
 
 ## Quote the competition's price. We will do the work for _½_  price. Cash.
