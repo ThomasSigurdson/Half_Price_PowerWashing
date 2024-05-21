@@ -2,8 +2,9 @@
 
 ## Quote the competition's price. We will do the work for _½_  price. Cash.
 
-## Quote the competition's price. We will do the work for <span class="colored-half">½</span>  price. Cash.
+## Quote the competition's price. We will do the work for <span class="colored-half">½ testing </span> price. Cash.
 
+We will do the work for <span class="colored-half">½ testing </span> price. Cash.
 
 ### Gucci & I would appreciate the work.
 
