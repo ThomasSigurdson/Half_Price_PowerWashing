@@ -2,10 +2,12 @@
 
 ## Quote the competition's price. We will do the work for _½_  price. Cash.
 
-!["Gucci with Cherry Blosom"](Gucci_being_Silly_616x808.png)
+!["Gucci with Cherry Blosom"](Gucci_being_Silly_308x404.png)
+Better times... May 2023. Gucci chasing Cherry blosoms.
+
 
 ### Gucci & I would appreciate the work.
 
 ### Gucci & I are living out our truck.
 
-Testing
+## For any inquiries, contact us at: thomas.sigurdson88@gmail.com
