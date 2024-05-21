@@ -1,5 +1,9 @@
 CSS
 
+table {
+    border: none;
+}
+
 .colored-half {
     color: blue;
 }
