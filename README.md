@@ -1,6 +1,6 @@
 # ½ Price Power Washing
 
-## Quote the competition's price, we will do the work ½ price. Cash.
+## Quote the competition's price. We will do the work # ½ ## price. Cash.
 
 ### Gucci & I would appreciate the work.
 
