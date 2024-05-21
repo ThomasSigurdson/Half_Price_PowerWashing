@@ -4,7 +4,7 @@
 
 ## Quote the competition's price. We will do the work for _½_  price. Cash.
 
-| Gucci | Gucci & Doug - the Cat|  
+| The One & Only - Gucci! | Gucci & Doug - the Cat|  
 |---|---|  
 | !["Gucci with Cherry Blosom"](Gucci_being_Silly_308x404.png) | !["Gucci & Doug"](Gucci_&_Doug_523x404.png) |
 | May 2023. Gucci chasing Cherry blosoms. <br> Gucci got a blosom stuck to her nose. <br> Silly ~~rabbit~~ dog.  | April 2020. Doug napping on Gucci's cushion. |
