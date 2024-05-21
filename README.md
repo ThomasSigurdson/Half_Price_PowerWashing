@@ -13,6 +13,8 @@
 
 ## For any inquiries, contact us at: [thomas.sigurdson88@gmail.com](mailto:thomas.sigurdson88@gmail.com?subject=Power%20Washing%20Inquiry)
 
+<a href="mailto:thomas.sigurdson88@gmail.com?subject=Power%20Washing%20Inquiry">thomas.sigurdson88@gmail.com</a>
+
 !["Gucci & I Captured by Google Maps"](Gucci_&_ I_Captured_by_Google_Maps_695x377.png)
 
 May 2023. Gucci & I captured by Google Maps.
