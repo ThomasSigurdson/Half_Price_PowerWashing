@@ -4,7 +4,7 @@
 
 !["Gucci with Cherry Blosom"](Gucci_being_Silly_308x404.png)
 
-Better times... May 2023. Gucci chasing Cherry blosoms.
+Better times... May 2023. Gucci chasing Cherry blosoms.  
 Gucci got a blosom stuck to her nose. Silly dog.
 
 ### Gucci & I would appreciate the work.
