@@ -13,4 +13,4 @@ Gucci got a blosom stuck to her nose. Silly dog.
 
 ## For any inquiries, contact us at: thomas.sigurdson88@gmail.com
 
-!["Gucci & I Captured by Google Maps"](Gucci_&_ I_Captured_by_Google Maps_695x377.png)
+!["Gucci & I Captured by Google Maps"](Gucci_&_ I_Captured_by_Google_Maps_695x377.png)
