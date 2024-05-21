@@ -4,10 +4,10 @@
 
 ## Quote the competition's price. We will do the work for _½_  price. Cash.
 
-| Gucci | Gucci & Doug |  
+| Gucci | Gucci & Doug - the Cat|  
 |---|---|  
 | !["Gucci with Cherry Blosom"](Gucci_being_Silly_308x404.png) | !["Gucci & Doug"](Gucci_&_Doug_523x404.png) |
-| May 2023. Gucci chasing Cherry blosoms.   Gucci got a blosom stuck to her nose. Silly ~~rabbit~~ dog.  | Gucci & Doug - the Cat  |
+| May 2023. Gucci chasing Cherry blosoms.   Gucci got a blosom stuck to her nose.   Silly ~~rabbit~~ dog.  |     |
 
 ### Gucci & I would appreciate the work.  Gucci & I are living out of our truck.
 
