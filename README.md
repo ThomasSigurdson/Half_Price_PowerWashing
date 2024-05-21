@@ -13,7 +13,7 @@
 
 ## For any inquiries, contact us at: thomas.sigurdson88@gmail.com
 
-[## For any inquiries, contact us at:](mailto:thomas.sigurdson88@gmail.com?subject=Power%20Washing%20Inquiry)
+## For any inquiries, contact us at: [thomas.sigurdson88@gmail.com](mailto:thomas.sigurdson88@gmail.com?subject=Power%20Washing%20Inquiry)
 
 !["Gucci & I Captured by Google Maps"](Gucci_&_ I_Captured_by_Google_Maps_695x377.png)
 
