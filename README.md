@@ -2,7 +2,7 @@
 
 # ½ Price Power Washing
 
-### Gucci & I would appreciate the work.  Gucci & I are living out of our truck.
+### Gucci & I are living out of our truck.  Gucci & I would appreciate the work.
 
 ## Quote the competition's price. We will do the work for _½_  price. Cash.
 
