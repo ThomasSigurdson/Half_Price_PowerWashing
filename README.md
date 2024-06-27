@@ -13,7 +13,7 @@
 | May 2023. Gucci chasing Cherry blossoms. <br> Gucci got a blossom stuck to her nose. <br> Silly ~~rabbit~~ dog.  | April 2020. Doug napping on Gucci's cushion. Gucci oblivious. |
 
 ## For any inquiries, contact us at: <a href="mailto:thomas.sigurdson88@gmail.com?subject=Power%20Washing%20Inquiry">thomas.sigurdson88@gmail.com</a>
-<br>
+
 !["Gucci & I Captured by Google Maps"](Gucci_I_Captured.png)
 
 May 2023. Gucci & I captured by Google Maps.
