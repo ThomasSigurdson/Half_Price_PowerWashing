@@ -2,7 +2,7 @@
 
 # ½ Price Power Washing
 
-### Gucci & I are living in a converted school bus because we cannot afford Vancouver rent.  
+### Gucci & I are living in a converted school bus because we cannot afford ~~Vancouver~~ rent.  
 ### Gucci & I would appreciate the work.
 
 ## Quote the competition's price. We will do the work for _½_  price. Cash.
