@@ -16,4 +16,9 @@
 
 !["Gucci & I Captured by Google Maps"](Gucci_&_ I_Captured_by_Google_Maps_695x377.png)
 
+<br>
+!["Gucci & I Captured by Google Maps"](Gucci_&_ I_Captured_by_Google%20Maps_695x377.png)
+
+
+
 May 2023. Gucci & I captured by Google Maps.
